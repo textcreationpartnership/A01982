@@ -35,222 +35,237 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-A short catechisme wherein are briefely laid downe the fundamentall principles of Christian religion
+
+1. ❧The Printer
+to the Reader.
+
 #####Body#####
 
-1. Queſtion. 1
+1. A SHORT
+Catachiſme, containing
+the fundamentall
+Principles of Chriſtian
+Religion.
 
-1. Queſtion. 1
+    _ Queſtion. 1
 
-1. Queſtion. 2
+    _ Queſtion. 1
 
-1. Queſtion. 2
+    _ Queſtion. 2
 
-1. Queſtion. 3
+    _ Queſtion. 2
 
-1. Queſtion. 3
+    _ Queſtion. 3
 
-1. Queſtion. 4
+    _ Queſtion. 3
 
-1. Queſtion. 4
+    _ Queſtion. 4
 
-1. Queſtion. 5
+    _ Queſtion. 4
 
-1. Queſtion. 5
+    _ Queſtion. 5
 
-1. Queſtion. 6
+    _ Queſtion. 5
 
-1. Queſtion. 6
+    _ Queſtion. 6
 
-1. Queſtion. 7
+    _ Queſtion. 6
 
-1. Queſtion. 7
+    _ Queſtion. 7
 
-1. Queſtion. 8
+    _ Queſtion. 7
 
-1. Queſtion. 8
+    _ Queſtion. 8
+
+    _ Queſtion. 8
 Q. What are the workes
 of God?A. His decrée, and the execution
 thereof.
-1. Queſtion. 10
+    _ Queſtion. 10
 
-1. Queſtion. 10
+    _ Queſtion. 10
 
-1. Queſtion. 11
+    _ Queſtion. 11
 
-1. Queſtion. 11
+    _ Queſtion. 11
 
-1. Queſtion. 12
+    _ Queſtion. 12
 
-1. Queſtion. 12
+    _ Queſtion. 12
 
-1. Queſtion. 13
+    _ Queſtion. 13
 
-1. Queſtion. 13
+    _ Queſtion. 13
 
-1. Queſtion. 14
+    _ Queſtion. 14
 
-1. Queſtion. 15
+    _ Queſtion. 15
 
-1. Queſtion. 15
+    _ Queſtion. 15
 
-1. Queſtion. 16
+    _ Queſtion. 16
 
-1. Queſtion. 16
+    _ Queſtion. 16
 
-1. Queſtion. 17
+    _ Queſtion. 17
 
-1. Queſtion. 17
+    _ Queſtion. 17
 
-1. Queſtion. 18
+    _ Queſtion. 18
 
-1. Queſtion. 18
+    _ Queſtion. 18
 
-1. Queſtion. 19
+    _ Queſtion. 19
 
-1. Queſtion. 19
+    _ Queſtion. 19
 
-1. Queſtion. 20
+    _ Queſtion. 20
 
-1. Queſtion. 20
+    _ Queſtion. 20
 
-1. Queſtion. 21
+    _ Queſtion. 21
 
-1. Queſtion. 21
+    _ Queſtion. 21
 
-1. Queſtion. 22
+    _ Queſtion. 22
 
-1. Queſtion. 23
+    _ Queſtion. 23
 
-1. Queſtion. 23
+    _ Queſtion. 23
 
-1. Queſtion. 24
+    _ Queſtion. 24
 
-1. Queſtion. 24
+    _ Queſtion. 24
 
-1. Queſtion. 25
+    _ Queſtion. 25
 
-1. Queſtion. 25
+    _ Queſtion. 25
 
-1. Queſtion. 26
+    _ Queſtion. 26
 
-1. Queſtion. 26
+    _ Queſtion. 26
 
-1. Queſtion. 27
+    _ Queſtion. 27
 
-1. Queſtion. 27
+    _ Queſtion. 27
 
-1. Queſtion. 28
+    _ Queſtion. 28
 
-1. Queſtion. 28
+    _ Queſtion. 28
 
-1. Queſtion. 29
+    _ Queſtion. 29
 
-1. Queſtion. 29
+    _ Queſtion. 29
 
-1. Queſtion. 30
+    _ Queſtion. 30
 
-1. Queſtion. 30
+    _ Queſtion. 30
 
-1. Queſtion. 31
+    _ Queſtion. 31
 
-1. Queſtion. 31
+    _ Queſtion. 31
 
-1. Queſtion. 32
+    _ Queſtion. 32
 
-1. Queſtion. 32
+    _ Queſtion. 32
 
-1. Queſtion. 33
+    _ Queſtion. 33
 
-1. Queſtion. 33
+    _ Queſtion. 33
 
-1. Queſtion. 34
+    _ Queſtion. 34
 
-1. Queſtion. 34
+    _ Queſtion. 34
 
-1. Queſtion. 35
+    _ Queſtion. 35
 
-1. Queſtion. 35
+    _ Queſtion. 35
 
-1. Queſtion. 36
+    _ Queſtion. 36
 
-1. Queſtion. 36
+    _ Queſtion. 36
 
-1. Queſtion. 37
+    _ Queſtion. 37
 
-1. Queſtion. 37
+    _ Queſtion. 37
 
-1. Queſtion. 38
+    _ Queſtion. 38
 
-1. Queſtion. 38
+    _ Queſtion. 38
 
-1. Queſtion. 39
+    _ Queſtion. 39
 
-1. Queſtion. 39
+    _ Queſtion. 39
 
-1. Queſtion. 40
+    _ Queſtion. 40
 
-1. Queſtion. 40
+    _ Queſtion. 40
 
-1. Queſtion. 41
+    _ Queſtion. 41
 
-1. Queſtion. 41
+    _ Queſtion. 41
 
-1. Queſtion. 42
+    _ Queſtion. 42
 
-1. Queſtion. 42
+    _ Queſtion. 42
 
-1. Queſtion. 43
+    _ Queſtion. 43
 
-1. Queſtion. 43
+    _ Queſtion. 43
 
-1. Queſtion. 44
+    _ Queſtion. 44
 
-1. Queſtion. 44
+    _ Queſtion. 44
 
-1. Queſtion. 45
+    _ Queſtion. 45
 
-1. Queſtion. 45
+    _ Queſtion. 45
 
-1. Queſtion. 46
+    _ Queſtion. 46
 
-1. Queſtion. 46
+    _ Queſtion. 46
 
-1. Queſtion. 47
+    _ Queſtion. 47
 
-1. Queſtion. 47
+    _ Queſtion. 47
 
-1. Queſtion. 48
+    _ Queſtion. 48
 
-1. Queſtion. 48
+    _ Queſtion. 48
 
-1. Queſtion. 49
+    _ Queſtion. 49
 
-1. Queſtion. 49
+    _ Queſtion. 49
 
-1. Queſtion. 50
+    _ Queſtion. 50
 
-1. Queſtion. 50
+    _ Queſtion. 50
 
-1. Queſtion. 52
+    _ Queſtion. 52
 
-1. Queſtion. 52
+    _ Queſtion. 52
 
-1. Queſtion. 53
+    _ Queſtion. 53
 
-1. Queſtion. 53
+    _ Queſtion. 53
 
-1. Queſtion. 54
+    _ Queſtion. 54
 
-1. Queſtion. 54
+    _ Queſtion. 54
 
-1. Queſtion. 54
+    _ Queſtion. 54
 
-1. Queſtion. 54
+    _ Queſtion. 54
 
-1. Queſtion. 55
+    _ Queſtion. 55
 
-1. Queſtion. 55
+    _ Queſtion. 55
+
+1. Morning Praier for
+a Familie.
+
+1. Euening Prayer for
+a Familie.
 
 **Types of content**
 
